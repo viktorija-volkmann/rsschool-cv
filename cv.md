@@ -1,8 +1,8 @@
 # Viktorija Volkmann
 
 
-viktorija.volkmann@gmail.com 
-***+37063671007***
+viktorijan@gmail.com 
+***+37063671444***
 
 I have great communication skills with the ability to provide friendly and professional customer service and to relay suggestions, requests and other information that can help to improve performance, speed and to make applications more user-friendly.
 
